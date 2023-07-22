@@ -1,2 +1,2 @@
 # UAS-ARVR-TEGUH-MUSTOFA
-link ini berisikan bukti telah mnegerjakan tugas UAS ARVR
+link ini berisikan bukti telah mengerjakan tugas UAS ARVR
